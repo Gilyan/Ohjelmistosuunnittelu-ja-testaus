@@ -10,7 +10,7 @@ Lick the curtain just to be annoying purr, climb a tree, wait for a fireman jump
 
 [Cat ipsum](http://www.catipsum.com/)
 
-![](http://carltonvet.com.au/sites/default/files/styles/large/public/images/article/cats.jpg)
+![](http://www.oleoo.com.br/wp-content/uploads/2016/11/gato.jpg)
 
 | Kissa | Väri |
 |:--|:--|
