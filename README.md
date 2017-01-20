@@ -13,7 +13,7 @@ Lick the curtain just to be annoying purr, climb a tree, wait for a fireman jump
 ![](http://www.androidguys.com/wp-content/uploads/2015/10/kitten_begging_cutely-wallpaper-1920x1080.jpg)
 
 | Kissa | Väri |
-|:------|:------------|
+|:--|:--|
 | Ares | Musta |
 | Hiro | Mustavalkea |
 | Luna | Kilpikonna |
