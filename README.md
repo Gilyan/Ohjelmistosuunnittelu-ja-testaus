@@ -9,3 +9,5 @@ Lick the curtain just to be annoying purr, climb a tree, wait for a fireman jump
 ### Alaotsikko
 
 [Cat ipsum](http://www.catipsum.com/)
+
+![](http://eskipaper.com/kitty-cat.html#gal_post_13555_kitty-cat-1.jpg)
