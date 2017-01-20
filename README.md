@@ -10,7 +10,7 @@ Lick the curtain just to be annoying purr, climb a tree, wait for a fireman jump
 
 [Cat ipsum](http://www.catipsum.com/)
 
-![](http://www.androidguys.com/wp-content/uploads/2015/10/kitten_begging_cutely-wallpaper-1920x1080.jpg)
+![](http://carltonvet.com.au/sites/default/files/styles/large/public/images/article/cats.jpg)
 
 | Kissa | Väri |
 |:--|:--|
